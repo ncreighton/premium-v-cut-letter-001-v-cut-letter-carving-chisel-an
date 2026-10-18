@@ -1,0 +1,2 @@
+# premium-v-cut-letter-001-v-cut-letter-carving-chisel-an
+Tired of guessing the correct chisel angle and depth every time you carve a letter, only to end up with uneven strokes and wasted wood?  The V-Cut Letter Carving Chisel Angle and Depth Tracker is the first Notion template designed to log and replicate your perfect cuts. By recording exact angle and depth for each letter style, you eliminate guesswo
